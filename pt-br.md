@@ -18,7 +18,7 @@
         - Gary Vanerchuk, a economia da gratidão
     - Você não precisa da maioria das pessoas apenas 5% pra virar milionário
     - A cada menção de stories ele manda um vídeo no direct agradecendo
-    - Paradoxo de conteúdo: Quanto mais a pessoa aprende via conteúdo sem pagar nada, mais ela tende a comprar seu produto
+    - Paradoxo de conteúdo? Quanto mais a pessoa aprende via conteúdo grátis, mais ela tende a comprar seu produto.
     - Talvez = Não
 
 ## Primo Rico (Primo Startups): PRIMO RICO CONFRONTA O EMPREENDEDOR
